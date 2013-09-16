@@ -2,9 +2,9 @@
 
 ### Wedding pre-party
 
- * [ ] get James ordained
+ * [x] get James ordained
  * [ ] clear space for a tent
- * [ ] get a tent
+ * [x] get a tent
  * [ ] get chairs for guests
  
  (etc.)
