@@ -9,6 +9,8 @@
  
  (etc.)
 
+See also: [planning spreadsheet](https://docs.google.com/spreadsheet/ccc?key=0AifHlSVblA4ldEJZczJncjlIRGlSVWlKbkdfX0ZJd3c&usp=sharing) and [basic layout/plan](http://imgur.com/dPlEUmq)
+
 ### The Main Event
 
  * [ ] identify who wants to kick in $$$
