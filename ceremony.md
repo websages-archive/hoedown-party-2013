@@ -29,7 +29,7 @@ Keith and Eliza, we are here to remember and rejoice with you and to recount wit
 
  I ask you both to remember that love – which is faith, trust, and acceptance, will be the foundation of an abiding and deepening relationship. No other ties are more tender, no other vows more sacred, than those you now assume. Your vows are to be given to each other and each will need the continuing love, support, and understanding of each other to keep them. If you are able to keep the vows you take today, not because of any religious or civic law, but out of a desire to love and be loved by another person, fully and without limitation, your life will have its joy and the home you are establishing will be a place in which both will find the direction of your growth, your freedom, and your responsibility. 
 
-It is in this spirit that you have come here to today to exchange these vows.
+It is in this spirit that you have come here today to exchange these vows.
 
 # Vows
 [Repeat after Rev. White]
