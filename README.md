@@ -1,53 +1,57 @@
 ## Planning for the party of the hoedown, circa 2013, in the year of our Lard
 
-### Wedding pre-party
+### Pre-wedding
 
  * [x] get James ordained
- * [ ] clear space for a tent
  * [x] get a tent
- * [ ] get chairs for guests
- 
+ * [x] send out wedding invites
+ * [x] send out party invite
+ * [ ] get chairs for guests [see chairs.md](chairs.md)
+ * [ ] tree trimming for tent area (@rick and @alesandtratomasa)
+
  (etc.)
 
 See also: [planning spreadsheet](https://docs.google.com/spreadsheet/ccc?key=0AifHlSVblA4ldEJZczJncjlIRGlSVWlKbkdfX0ZJd3c&usp=sharing) and [basic layout/plan](http://imgur.com/dPlEUmq)
 
 ### The Main Event
 
- * [ ] identify who wants to kick in $$$
- * [ ] identify who wants to pitch in to do things below:
- * [ ] get beer, two kegs of good beer from jj's without fucked up european taps that break and can't be replaced; I have two taps from the @bval / c{s} community collection
-   * [ ] reserve with Sam; also need tubs
-   * [ ] confirm like a week before, just in case
-   * [ ] pick that shit up on The Day
- * [ ] arrange actual prepared food from someplace (kevin's mexican place has done us alright)
- * [ ] get the rimboy brewing N kegs of his good shit
- * [ ] also, some thing to put his beers in (we probably have carter's old big blue thing if it's not being used for an indigo vat)
- * [ ] convince rimboy to bring his party box of rope lights and strobe lights and shit
- * [ ] get more firewood
- * [ ] try to get more interesting things going on
-   * can we make this an "old time jam"?
-   * can we set up a stage and do a band in the yard?
-   * things like pizza dude (I can ask Bella Nashville if they wanna do their mobile thing)
-   * food trucks?
-   * Craft Brewed representing on-site?
-   * zoo animals?
-   * think of some shit
+ * [x] identify who wants to kick in $$$
+ * [x] identify who wants to pitch in to do things below:
+ * [ ] @rimboy beers
+   * [x] decisions, ingredients
+   * [x] brewing
+   * [x] kegging
+   * [ ] get CO2 gear, etc.
+   * [ ] deliver to site
+ * [ ] non-rimboy beer
+   * [?] order 1 keg from Craft Brewed
+   * [ ] get tub (@rick) /cc @cwage
+   * [ ] pick up key, day of event
+   * [ ] get ice, day of event
+ * [ ] mexican food (@vinbarnes)
+   * [x] place order
+   * [ ] deliver, day of event
+ * [ ] bbq (@evanmiller67)
+   * [ ] cook it
+   * [ ] deliver, day before event
+ * [ ] rope lights and strobe lights and shit (@rimboy), before or on day of event
+ * [ ] get more firewood (@rick / @alesandra tomasa)
+ * [ ] live music
+   * [ ] gypsy band
+   * [ ] pop-punk band ("Deluxin'") @rick
+     * [ ] ping Kara about PA /cc @rimboy @vinbarnes
+     * [ ] get pallettes from Craft Brewed (/cc @rimboy)
+     * [ ] get plywood somewhere
+     * [ ] build a "stage"
+     * [ ] verify we have ample extension cords
  * [ ] can we get some sort of transportation happening?
- * [ ] make a crazy-fuck invite, send it out
- * [ ] notify all the weird motherfuckers we know
-   * old time musicians
-   * artists
-   * roller / hula girls
-   * anarchists / people on tall bikes
-   * rock *n- rollers
- * [ ] tell people to bring chairs for hanging out in the lawn
- * [ ] tell neighbors wazzup
+ * [ ] tell neighbors wazzup (@rick / @alesandratomasa)
 
  * week before:
    * [ ] grab paper plates, keg cups, other drinking cups
    * [ ] grab snack food, non-alcoholic drinks, mixers, big trash bags
    * [ ] stock up on bug spray, citronella for torches
-   * [ ] get that lawn mowed, etc.
+   * [ ] one last lawn mowing; already scheduled (@alesandratomasa)
    * [ ] dance party playlists
    * [ ] make sure music is set up for outdoors
 
