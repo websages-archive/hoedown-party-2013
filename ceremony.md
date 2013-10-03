@@ -1,8 +1,12 @@
-# Welcome
+# Disclaimer - Rick
 
-Good evening.
+By attending this ceremony, all individuals herein congregated hereby absolve Keith and/or Eliza and their families of any responsibility for personal injury, stolen identity, malodorous and regretful inebriated intercourse, or any other negative consequence resulting from the attendance of this event and the following reception.
 
-We come together today not to mark the start of a relationship, but to recognize a bond that already exists as we celebrate with Keith and Eliza the wondrous and joyful commitment that has already taken place in their hearts.
+In accordance with this disclaimer, please put away and silence all of your phones and electronic devices, because this shit's about to go down.
+
+# Welcome - Jameswhite
+
+Mawwiage. Mawwiage is what bwings us togevvah today - not to mark the start of a relationship, but to recognize a bond that already exists as we celebrate with Keith and Eliza the wondrous and joyful commitment that has already taken place in their hearts.
 
 It is fitting and appropriate that you, their family and dearest friends, be here to witness and participate in their wedding; for the ideals, the understanding, and the mutual respect which they bring to their marriage have roots in the love, friendship, and guidance you have given them.
 
