@@ -2,12 +2,12 @@
 
 ### Pre-wedding
 
- * [x] get James ordained
- * [x] get a tent
- * [x] send out wedding invites
- * [x] send out party invite
- * [ ] get chairs for guests [see chairs.md](chairs.md)
- * [ ] tree trimming for tent area (@rick and @alesandtratomasa)
+ - [x] get James ordained
+ - [x] get a tent
+ - [x] send out wedding invites
+ - [x] send out party invite
+ - [ ] get chairs for guests [see chairs.md](chairs.md)
+ - [ ] tree trimming for tent area (@rick and @alesandtratomasa)
 
  (etc.)
 
