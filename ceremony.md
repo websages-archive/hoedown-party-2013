@@ -12,12 +12,7 @@ It is with these things in mind that Keith and Eliza have asked their dear frien
 
 # Reading
 
-Marriage is in many ways a simplification of life, and it naturally combines the strengths and wills of two young people so that, together, they seem to reach farther into the future than they did before. Above all, marriage is a new task and a new seriousness, - a new demand on the strength and generosity of each partner, and a great new danger for both.
-
-The point of marriage is not to create a quick commonality by tearing down all boundaries; on the contrary, a good marriage is one in which each partner appoints the other to be the guardian of their solitude, and thus they show each other the greatest possible trust. A merging of two people is an impossibility, and where it seems to exist, it is a hemming-in, a mutual consent that robs one party or both parties of their fullest freedom and development. But once the realization is accepted that even between the closest people infinite distances exist, a marvelous living side by side can grow up for them, if they succeed in loving the expanse between them, which gives them the possibility of always seeing each other as a whole and before an immense sky.
-
-There are such connections, which must be a very great, an almost unbearable happiness, but they can occur only between very rich beings, between those who have become, each for his own sake, rich, calm, and concentrated; only if two worlds are wide and deep and individual can they be combined... For the more we are, the richer everything we experience is. And those who want to have a deep love in their lives must collect and save for it, and gather honey.
-
+[ Reading to be selected from "Potential readings for Keith & Eliza's wedding" in Google Drive ]
 
 # Getting to business
 
