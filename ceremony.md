@@ -29,7 +29,7 @@ It is in this spirit that you have come here today to exchange these vows.
 # Vows
 [Repeat after Rev. White]
 
-I (Keith/Eliza), take you (Eliza/Keith) to be my (husband/wife), my partner in life and my one true love. I will cherish our union and love you more each day. I will trust you and respect you, laugh with you and cry with you, loving you faithfully through good times and bad. I give you my unconditional friendship and steadfast support, from this day forward for as long as we both shall live.
+I (Keith/Eliza), take you (Eliza/Keith) to be my (wive/husband), my partner in life and my one true love. I will cherish our union and love you more each day. I will trust you and respect you, laugh with you and cry with you, loving you faithfully through good times and bad. I give you my unconditional friendship and steadfast support, from this day forward, for as long as we both shall live.
 
 # Rings
 Traditionally, the passage to the status of husband and wife is marked by the exchange of rings.
@@ -46,4 +46,4 @@ Keith and Eliza, I would ask that you always remember to cherish each other as s
 In recognition of this marriage between you, made by the uniting of your hearts in mutual love and confidence, by the giving of your promises to each other, of which we are witnesses, and by the tokens of commitment you have exchanged, I pronounce you, Keith and Eliza, to be husband and wife. You may kiss.
 
 # Presentation
-Ladies and Gentlemen, it is my privilege to present to you for the very first time, Mr. and Mrs. Marcum.
+Ladies and Gentlemen, it is my privilege to present to you for the very first time, *open envelope* ...pause... Mr. and Mrs. Marcum.
