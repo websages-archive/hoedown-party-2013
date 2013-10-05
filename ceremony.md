@@ -1,5 +1,14 @@
 # Disclaimer - Rick
-By attending this ceremony, all individuals herein congregated hereby absolve Keith and/or Eliza and their families of any responsibility for personal injury, stolen identity, malodorous and regretful inebriated intercourse, or any other negative consequence resulting from the attendance of this event and the following reception.
+By attending this ceremony, all individuals, aggregate personalities, and/or
+cyber presences, avatars, and/or gravatars herein congregated hereby absolve
+Keith and/or Eliza and their families, managers, owners, operators, stunt
+doubles, blind trusts, consortiums, consortia, limited liability front
+organizations, colloquia and/or PACs (or superPACS) of any responsibility for
+personal injury, stolen identity, malodorous and/or regretful inebriated
+intercourse, settling during shipping, contests of speed, publisher's
+sweepstakes prizes, including free magazine subscriptions to Yachting weekly, or
+any other negative or deleterious consequence resulting from the attendance,
+physical or mental, of this event and the following reception.
 
 In accordance with this disclaimer, refrain from holding aloft iPads and other tablet devices for the picture takingness, and please put away and silence all of your phones and electronic devices,  because this shit's about to go down.
 
